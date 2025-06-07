@@ -4,6 +4,8 @@ what i'm comfortable with
 
 ( 14- DNI, 
 
+15-16 dw ur fine, we can chat n friend on pt, just I won't give my discord ^^
+
 17+ if we have similar intrests let's be friends ^^ !! )
 
 ![cc58d9be083fd5ac9d31675abc96809e](https://github.com/user-attachments/assets/efe4a682-ecb9-4252-ae71-a519336afe73)
