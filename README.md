@@ -1,6 +1,7 @@
 ![93a499826d441ff29d803233c8069cdc](https://github.com/user-attachments/assets/c54ccea5-5f54-44e8-90ea-99f4d895a686)
 
-what i'm comfortable with 
+I'm very formal in text, BUT that doesn't mean I'm trying to brush you off LMAOO it's just a habit of mine ;;
+pls be brainrotted with me, or banter, I will banter back .. also im autistic so it's hard for me to recognise tone 
 
 ( 14- DNI, 
 
