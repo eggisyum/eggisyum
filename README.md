@@ -12,7 +12,8 @@
                            15-16 dw ur fine, we can chat n friend on pt, just I won't give my discord ^^
 
                                      17+ if we have similar intrests let's be friends ^^ !! )**
-																		
+																	
 
+![kks](https://github.com/user-attachments/assets/bc60766c-bfb0-436e-8c7d-3e5199602c61) ![picmix com_12748589](https://github.com/user-attachments/assets/78852696-52e6-4255-be9f-c4f68d5beed3)
 
-![Screenshot 2025-06-08 183908](https://github.com/user-attachments/assets/2097fbbf-065b-4ad5-8f48-b367ec849bfd)
+i hope u like the picmixs i made loll
