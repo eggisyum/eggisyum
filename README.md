@@ -13,6 +13,4 @@
 
                                      17+ if we have similar intrests let's be friends ^^ !! )**
 																	
-![kks](https://github.com/user-attachments/assets/bc60766c-bfb0-436e-8c7d-3e5199602c61)![picmix com_12748589](https://github.com/user-attachments/assets/78852696-52e6-4255-be9f-c4f68d5beed3)
-
-i hope u like the picmixs i made loll
+![kakashigif]https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/8da15fff-983a-4f5a-b970-61cca85e2bfc/d1qzg68-81964047-d21e-4b68-8d50-e63241a150c5.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzhkYTE1ZmZmLTk4M2EtNGY1YS1iOTcwLTYxY2NhODVlMmJmY1wvZDFxemc2OC04MTk2NDA0Ny1kMjFlLTRiNjgtOGQ1MC1lNjMyNDFhMTUwYzUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.09AVH54fw1j0oNyBvUMC77OtjoPv0YfH0iQ_8Sir08E
