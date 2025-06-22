@@ -8,7 +8,7 @@
             I'm very formal in text, BUT that doesn't mean I'm trying to brush you off LMAOO it's just a habit of mine ;;
             pls be brainrotted with me, or banter, I will banter back .. also im autistic so it's hard for me to recognise tone
 		
-                                                            ˚｡⋆｡˚☽˚｡⋆ ☁︎
+                                                             ˚｡⋆｡˚☽˚｡⋆ ☁︎
 																																																				
                                                              ( 14- DNI, 
  
