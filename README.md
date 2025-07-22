@@ -3,20 +3,26 @@
 
    ☁︎ ˚｡⋆｡˚☽˚｡⋆														
 I'm very formal in text, 
+
 but that doesnt mean i'm trying to brush you off, i'm just very polite in text .
 
+
  pls be brainrotted with me, or banter, I will banter back .
+ 
  also im autistic so it's hard for me to recognise tone .
       ☁︎ ˚｡⋆｡˚☽˚｡⋆
       
 I CURRENTLY have no wifi . i hope this doesnt discourage anyone from not chatting with me !
+
 (no wifi streak of 1 month)
 
 . . . . . . . . . . . . . . . . . . . . . . . .
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆
  ( 14- DNI,  
+ 
   15-16 dw ur fine, we can chat n friend on pt, just I won't give my discord ^^
+  
   17+ if we have similar intrests let's be friends ^^ !! )
 
   if u alr have my discord idgaf . it's just formality . .
