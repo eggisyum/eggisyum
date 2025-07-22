@@ -1,19 +1,21 @@
 ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd)
 ![Screenshot 2025-06-08 182657](https://github.com/user-attachments/assets/f44bfabf-6855-48ab-a594-ae153028484f)
 
-   ☁︎ ˚｡⋆｡˚☽˚｡⋆
+☁︎ ˚｡⋆｡˚☽˚｡⋆
 
 I'm very formal in text, 
 
 but that doesnt mean i'm trying to brush you off, i'm just very polite (or try to be) when texting .
 
  im autistic so it's hard for me to recognise tone .
-      ☁︎ ˚｡⋆｡˚☽˚｡⋆
+ 
+ ☁︎ ˚｡⋆｡˚☽˚｡⋆
       
 . . . . . . . . . . . . . . . . . . . . . . . .
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆
- ( 14- DNI,  
+  
+ ( 14 and under DNI,  
  
   17+ if we have similar intrests let's try to be friends, or chat ^^ !! )
 
