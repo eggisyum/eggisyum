@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd)
 ![Screenshot 2025-06-08 182657](https://github.com/user-attachments/assets/f44bfabf-6855-48ab-a594-ae153028484f)
 
-   ☁︎ ˚｡⋆｡˚☽˚｡⋆														
+   ☁︎ ˚｡⋆｡˚☽˚｡⋆
+
 I'm very formal in text, 
 
 but that doesnt mean i'm trying to brush you off, i'm just very polite in text .
@@ -12,10 +13,6 @@ but that doesnt mean i'm trying to brush you off, i'm just very polite in text .
  also im autistic so it's hard for me to recognise tone .
       ☁︎ ˚｡⋆｡˚☽˚｡⋆
       
-I CURRENTLY have no wifi . i hope this doesnt discourage anyone from not chatting with me !
-
-(no wifi streak of 1 month)
-
 . . . . . . . . . . . . . . . . . . . . . . . .
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆
