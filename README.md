@@ -1,21 +1,26 @@
 ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd)
 ![Screenshot 2025-06-08 182657](https://github.com/user-attachments/assets/f44bfabf-6855-48ab-a594-ae153028484f)
 
+   ☁︎ ˚｡⋆｡˚☽˚｡⋆														
+I'm very formal in text, 
+but that doesnt mean i'm trying to brush you off, i'm just very polite in text .
 
+ pls be brainrotted with me, or banter, I will banter back .
+ also im autistic so it's hard for me to recognise tone .
+      ☁︎ ˚｡⋆｡˚☽˚｡⋆
+      
+I CURRENTLY have no wifi . i hope this doesnt discourage anyone from not chatting with me !
+(no wifi streak of 1 month)
 
-				    		                 ☁︎ ˚｡⋆｡˚☽˚｡⋆
-																														
-            I'm very formal in text, BUT that doesn't mean I'm trying to brush you off LMAOO it's just a habit of mine ;;
-            pls be brainrotted with me, or banter, I will banter back .. also im autistic so it's hard for me to recognise tone
-		
-                                                             ˚｡⋆｡˚☽˚｡⋆ ☁︎
-																																																				
-                                                             ( 14- DNI, 
- 
-                            15-16 dw ur fine, we can chat n friend on pt, just I won't give my discord ^^
+. . . . . . . . . . . . . . . . . . . . . . . .
 
-                                      17+ if we have similar intrests let's be friends ^^ !! )
-				
+  ☁︎ ˚｡⋆｡˚☽˚｡⋆
+ ( 14- DNI,  
+  15-16 dw ur fine, we can chat n friend on pt, just I won't give my discord ^^
+  17+ if we have similar intrests let's be friends ^^ !! )
+
+  if u alr have my discord idgaf . it's just formality . .
+  ☁︎ ˚｡⋆｡˚☽˚｡⋆				
 
 -------------------> made by @cry-of-fear ![button](https://github.com/user-attachments/assets/454cc432-9bf9-4649-906b-0d004d37f4d5)   ![blinkiesCafe-bR](https://github.com/user-attachments/assets/80d86c69-8e02-42e0-8fc3-2ad43693b204)  ![blinkiesCafe-3S](https://github.com/user-attachments/assets/9a93e154-e1b7-4708-b4ed-aac042baae10)
 
