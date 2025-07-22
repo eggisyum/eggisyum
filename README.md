@@ -8,6 +8,8 @@ I'm very formal in text,
 but that doesnt mean i'm trying to brush you off, i'm just very polite (or try to be) when texting .
 
  im autistic so it's hard for me to recognise tone .
+
+ im very friendly, please approach loudly ΠΠ 
  
  ☁︎ ˚｡⋆｡˚☽˚｡⋆
       
