@@ -12,6 +12,10 @@ but that doesnt mean i'm trying to brush you off, i'm just very polite (or try t
  im very friendly, please approach loudly ΠΠ 
  
  ☁︎ ˚｡⋆｡˚☽˚｡⋆
+
+ no wifi streak of 2 months (ongoing) . 
+
+ if i dont see ints, pls just continue !! 
       
 . . . . . . . . . . . . . . . . . . . . . . . .
 
