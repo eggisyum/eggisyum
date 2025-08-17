@@ -20,7 +20,7 @@ but that doesnt mean i'm trying to brush you off, i'm just very polite (or try t
   ☁︎ ˚｡⋆｡˚☽˚｡⋆
   
  ( 14 and under DNI,  
- 
+  iwc under 17
   17+ if we have similar intrests let's try to be friends, or chat ^^ !! )
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆				
