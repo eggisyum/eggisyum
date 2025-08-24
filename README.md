@@ -11,20 +11,11 @@ but that doesnt mean i'm trying to brush you off, i'm just very polite (or try t
 
  im very friendly, please approach loudly ΠΠ 
 
- if i'm in a group dont hesitate to whisper to me !! if we know each other and you're in a group i won't message you (im assuming you're talking to friends)
- 
- ☁︎ ˚｡⋆｡˚☽˚｡⋆
-
- 
-
-. . . . . . . . . . . . . . . . . . . . . . . .
+ if i'm in a group dont hesitate to whisper to me !! if we know each other and you're in a group i won't message you (i get shy)
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆
-  
- ( 14 and under DNI,  
-  int with care under 17 ‪‪❤︎‬
-  
-  17+ if we have similar intrests let's try to be friends, or chat ^^ !! )
+
+i am not in love with etho or have any parasocial feelings towards him !! i just watch and do art (rarely) 😭😭
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆				
 
