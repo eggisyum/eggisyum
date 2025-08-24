@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd)
-![Screenshot 2025-06-08 182657](https://github.com/user-attachments/assets/f44bfabf-6855-48ab-a594-ae153028484f)
+![IMG_4422](https://github.com/user-attachments/assets/ff782387-6009-4346-a38b-0d699a21857f)
+
 
 ☁︎ ˚｡⋆｡˚☽˚｡⋆
 
