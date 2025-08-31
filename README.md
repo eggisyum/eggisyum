@@ -18,6 +18,8 @@ but that doesnt mean i'm trying to brush you off, i'm just very polite (or try t
 
 i am not in love with etho or have any parasocial feelings towards him !! i just watch and do art (rarely) 😭😭
 
+tldr my byi/dni is no proshippers, friends with ppl over the age of 17 but can still chat with any1, but still 14- dni
+
   ☁︎ ˚｡⋆｡˚☽˚｡⋆				
 
 -------------------> made by @cry-of-fear ![button](https://github.com/user-attachments/assets/454cc432-9bf9-4649-906b-0d004d37f4d5)   ![blinkiesCafe-bR](https://github.com/user-attachments/assets/80d86c69-8e02-42e0-8fc3-2ad43693b204)  ![blinkiesCafe-3S](https://github.com/user-attachments/assets/9a93e154-e1b7-4708-b4ed-aac042baae10)
