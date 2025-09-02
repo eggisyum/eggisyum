@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd)
-![IMG_4422](https://github.com/user-attachments/assets/ff782387-6009-4346-a38b-0d699a21857f)
+![IMG_4422]()
 
 
 ☁︎ ˚｡⋆｡˚☽˚｡⋆
@@ -10,12 +10,9 @@ but that doesnt mean i'm trying to brush you off, i'm just very polite (or try t
 
  im autistic so it's hard for me to recognise tone .
 
- im very friendly, please approach loudly ΠΠ
-
- ႔ ႔
-ᠸᵕ ᵕ  𐅠   
-
- if i'm in a group dont hesitate to whisper to me !! if we know each other and you're in a group i won't message you (i get shy)
+ im very friendly, please approach loudly 
+ 
+if i'm in a group don't to whisper to me !! if we know each other and you're in a group i won't message you (i get shy)
 
 
   ☁︎ ˚｡⋆｡˚☽˚｡⋆
