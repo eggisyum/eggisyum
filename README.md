@@ -1,8 +1,5 @@
-![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd)
-![IMG_4422]()
-
-
-☁︎ ˚｡⋆｡˚☽˚｡⋆
+![](https://komarev.com/ghpvc/?username=eggisyum&color=red&style=plastic&label=genjutsu'd)
+![1000011797](https://github.com/user-attachments/assets/b1c346bb-0f40-4f30-b2ea-073bace5fb97)
 
 I'm very formal in text, 
 
