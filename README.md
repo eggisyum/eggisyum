@@ -23,7 +23,7 @@
 
  ◞  ![1000012383](https://github.com/user-attachments/assets/7b55b7b9-562a-4c77-9adf-785bf4574f43) ꒱
   
- I'm very 'low energy' in texts ! Heads up I'm a mobile player so I may disconnect randomly (typically reading in different tabs) 
+ I'm very 'low energy' in texts ! Heads up I'm a mobile player so I may disconnect randomly (typically reading) 
  
 I match energy, if you come at me energetically you'll recieve it back !
 
