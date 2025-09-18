@@ -5,11 +5,13 @@
 <p align="center"> <img width="500" height="450" src="https://github.com/user-attachments/assets/3778ca50-f14b-45e2-9471-e6c4ee56ed3e">
 <p align="center"> sign my ata for free food ՞. .՞
  
-![1000012364](https://github.com/user-attachments/assets/ac129b48-067a-41e8-91c7-a59c163e9387)
+ 
+𐔌![17582008264778189544557597701574](https://github.com/user-attachments/assets/7befe19f-d138-49bc-b0ff-9579752d7822) ◝
+
 
 
  
- <sub>     𓂅   𐔌  [pronouns](https://en.pronouns.page/@eggisyum)  ◞  ༝  ◝  [atabook](https://egg.atabook.org/)  ◞  ༝ ◝  [rentry gift](https://rentry.co/kakashiism)  ◞  ༝ ◝  [strawpage](https://eggisyum.straw.page)  ´ཀ` <sub/> 
+ <sub>     𓂅     [pronouns](https://en.pronouns.page/@eggisyum)  ◞  ༝  ◝  [atabook](https://egg.atabook.org/)  ◞  ༝ ◝  [rentry gift](https://rentry.co/kakashiism)  ◞  ༝ ◝  [strawpage](https://eggisyum.straw.page)  ´ཀ` <sub/> 
 
 <p align="center"> ˙𐃷˙
 <p align="center"> .ᐟ dni 14- and proshippers 
