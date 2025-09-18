@@ -11,12 +11,15 @@
 
 
  
- <sub>     𓂅     [pronouns](https://en.pronouns.page/@eggisyum)  ◞  ༝  ◝  [atabook](https://egg.atabook.org/)  ◞  ༝ ◝  [rentry gift](https://rentry.co/kakashiism)  ◞  ༝ ◝  [strawpage](https://eggisyum.straw.page)  ´ཀ` <sub/> 
+ <sub>     𓂅     [pronouns](https://en.pronouns.page/@eggisyum)  ◞ [atabook](https://egg.atabook.org/)  ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page)  ´ཀ` <sub/> 
 
-<p align="center"> ˙𐃷˙
+
 <p align="center"> .ᐟ dni 14- and proshippers 
  <p align="center"> .ᐟ interact with care 16- 
-<p align="center"> .. I'm very 'low energy' in texts ! Heads up I'm a mobile player so I may disconnect randomly (typically reading in different tabs) 
+
+ ◞  ![1000012383](https://github.com/user-attachments/assets/7b55b7b9-562a-4c77-9adf-785bf4574f43) ꒱
+  
+ I'm very 'low energy' in texts ! Heads up I'm a mobile player so I may disconnect randomly (typically reading in different tabs) 
 
  
 <p align="center"> <img width="500" height="450" src="https://github.com/user-attachments/assets/433c34f6-f769-4baa-94fa-1529e7b4c58f"><img width="1225" 
