@@ -11,7 +11,7 @@
 
 
  
- <sub>     𓂅     [pronouns](https://en.pronouns.page/@eggisyum)  ◞ [atabook](https://egg.atabook.org/)  ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page)  ´ཀ` <sub/> 
+   𓂅 [pronouns](https://en.pronouns.page/@eggisyum)  ◞ [atabook](https://egg.atabook.org/)  ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page)  ´ཀ` 
 
 
 <p align="center"> .ᐟ dni 14- and proshippers 
