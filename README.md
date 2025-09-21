@@ -13,9 +13,7 @@
  
 𐔌![17582008264778189544557597701574](https://github.com/user-attachments/assets/7befe19f-d138-49bc-b0ff-9579752d7822) ◝
 
-
-
-
+───────────────
  
    𓂅 [pronouns](https://en.pronouns.page/@eggisyum)  ◞ [atabook](https://egg.atabook.org/)  ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page)  ´ཀ` 
 
