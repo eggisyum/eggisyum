@@ -40,6 +40,4 @@ I match energy, if you come at me energetically you'll recieve it back !
 
 <img width="2000" height="200" alt="IMG_4601" src="https://github.com/user-attachments/assets/c00a8fee-56cd-4013-b913-86d906ddddb0" />
 
-<img width="2048" height="806" alt="IMG_4598" src="https://github.com/user-attachments/assets/9b01c6c5-1378-4cdc-8327-a4c951ff66c8" />
-
 
