@@ -14,7 +14,7 @@
 
 ───────────────
   
-   ![IMG_4603](https://github.com/user-attachments/assets/d604fe60-462a-47b5-b78c-ebfcbfdd4a85) . [pronouns](https://en.pronouns.page/@eggisyum)  ◞ [atabook](https://egg.atabook.org/)  ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page) . ![IMG_4604](https://github.com/user-attachments/assets/ee597668-d911-4849-82f6-e88f26627b52)
+  𓂃 [pronouns](https://en.pronouns.page/@eggisyum)  ◞ [atabook](https://egg.atabook.org/)  ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page) 
 
 
 
@@ -30,8 +30,6 @@
  I'm very 'low energy' in texts ! Heads up I'm a mobile player so I may disconnect randomly (typically reading) 
  
 I match energy, if you come at me energetically you'll recieve it back !
-
-
 
 
 ![IMG_4591](https://github.com/user-attachments/assets/119c6355-82cd-4e4d-99fa-e169468f224f)
