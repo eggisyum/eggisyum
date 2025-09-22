@@ -34,8 +34,6 @@ I match energy, if you come at me energetically you'll recieve it back !
 
 ![IMG_4591](https://github.com/user-attachments/assets/119c6355-82cd-4e4d-99fa-e169468f224f)
 
-“ ɪ ᴊᴜꜱᴛ ᴡᴀɴᴛᴇᴅ ʟᴏᴠᴇ - ʙᴜᴛ ʏᴏᴜ ᴡᴀɴᴛᴇᴅ ɢᴏʀᴇ . ʏᴏᴜ'ʀᴇ ᴍʏ ᴍᴀᴛᴀᴅᴏʀ “
-
 <img width="2000" height="200" alt="IMG_4601" src="https://github.com/user-attachments/assets/c00a8fee-56cd-4013-b913-86d906ddddb0" />
 
 
