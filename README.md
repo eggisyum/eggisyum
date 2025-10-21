@@ -13,9 +13,9 @@
 𐔌![17582008264778189544557597701574](https://github.com/user-attachments/assets/7befe19f-d138-49bc-b0ff-9579752d7822) ◝
 
 ───────────────
-  
+  lmao watch out my strawpage is really bright
   𓂃 [pronouns](https://en.pronouns.page/@eggisyum) ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page) 
-
+ 
 
 
 <p align="center"> .ᐟ dni 14- and proshippers 
