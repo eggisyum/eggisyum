@@ -23,7 +23,7 @@
 <p align="center"> .ᐟ dni 14- and proshippers 
  <p align="center"> .ᐟ interact with care 16- 
   
-.ᐟ c + h . I'm very friendly 
+.ᐟ c + h . I'm very friendly trust , i'm just socially awkward
 
 ↻ .ᐟ If I'm sitting by my lonesome feel free to cuddle behind 
 
