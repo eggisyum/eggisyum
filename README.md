@@ -16,7 +16,7 @@
 
   lmao watch out my strawpage is really bright
   
-  𓂃 [pronouns](https://en.pronouns.page/@eggisyum) ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page) 
+  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) ◞ [rentry gift](https://rentry.co/kakashiism) ◞  [strawpage](https://eggisyum.straw.page) 
  
 
 
