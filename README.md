@@ -20,8 +20,8 @@
  
 
 
-<p align="center"> .ᐟ dni 14- and proshippers 
- <p align="center"> .ᐟ interact with care 16- 
+<p align="center"> .ᐟ dni 17- and proshippers 
+ <p align="center"> .ᐟ interact with care 
   
 .ᐟ c + h . I'm very friendly trust , i'm just socially awkward
 
