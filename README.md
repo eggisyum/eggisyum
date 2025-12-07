@@ -7,7 +7,7 @@
 
 ![1000012361](https://github.com/user-attachments/assets/6fcd3af0-d2fe-4e38-bf91-b1052130ad8b) ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd) ![1000012362](https://github.com/user-attachments/assets/767fa1d1-bbde-4180-8ebc-3bebd4129f55)
 
- ,, 50% discount rn ! [commission info](https://eggisyummier.carrd.co/)
+ ,, decorate my [tree](https://colormytree.me/2025/01KBVC1EHKS3G8MVHPW0RJ57K5) pleas ? ^^ 
 
   sign my [ata](https://egg.atabook.org/) for free food ՞. .՞
  
