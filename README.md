@@ -1,13 +1,11 @@
 <div align="center">
-<img width="2048" height="806" alt="IMG_4599" src="https://github.com/user-attachments/assets/05a2e1e5-9d6d-42f2-9204-c230ce0f0f26" />
+
 
 <img width="2000" height="200" alt="IMG_4600" src="https://github.com/user-attachments/assets/bb625729-a3fa-4dde-b07e-a361353b8026" />
 
 ![IMG_4595](https://github.com/user-attachments/assets/556da98c-5355-4822-984f-ed5cadb12952)
 
 ![1000012361](https://github.com/user-attachments/assets/6fcd3af0-d2fe-4e38-bf91-b1052130ad8b) ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd) ![1000012362](https://github.com/user-attachments/assets/767fa1d1-bbde-4180-8ebc-3bebd4129f55)
-
- ,, decorate my [tree](https://colormytree.me/2025/01KBVC1EHKS3G8MVHPW0RJ57K5) pleas ? ^^ 
 
   sign my [ata](https://egg.atabook.org/) for free food ՞. .՞
  
@@ -28,6 +26,8 @@
 .ᐟ c + h . I'm very friendly trust , i'm just socially awkward
 
 ↻ .ᐟ If I'm sitting by my lonesome feel free to cuddle behind 
+
+───────────────
 
  ◞  ![1000012383](https://github.com/user-attachments/assets/7b55b7b9-562a-4c77-9adf-785bf4574f43) ꒱
   
