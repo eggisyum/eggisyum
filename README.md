@@ -20,7 +20,7 @@
  
 
 
-<p align="center"> .ᐟ dni 18- and proshippers 
+<p align="center"> .ᐟ dni 17- (or just iwc!) and proshippers 
   
 .ᐟ c + h . I'm very friendly trust , i'm just socially awkward
 
