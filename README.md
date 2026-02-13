@@ -20,8 +20,7 @@
  
 
 
-<p align="center"> .ᐟ dni 17- and proshippers 
- <p align="center"> .ᐟ interact with care 
+<p align="center"> .ᐟ dni 18- and proshippers 
   
 .ᐟ c + h . I'm very friendly trust , i'm just socially awkward
 
@@ -30,10 +29,6 @@
 ───────────────
 
  ◞  ![1000012383](https://github.com/user-attachments/assets/7b55b7b9-562a-4c77-9adf-785bf4574f43) ꒱
-  
- I'm very 'low energy' in texts !
- 
-I match energy, if you come at me energetically you'll recieve it back !
 
 
 ![IMG_4591](https://github.com/user-attachments/assets/119c6355-82cd-4e4d-99fa-e169468f224f)
