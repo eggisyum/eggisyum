@@ -16,7 +16,7 @@
 
   lmao watch out my strawpage is really bright
   
-  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) 
+  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) , [strawpage](https://eggisyum.straw.page/] + other [strawpage](https://kakashibukkake.straw.page/)
  
 
 
