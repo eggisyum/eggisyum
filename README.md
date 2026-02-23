@@ -16,8 +16,7 @@
 
   lmao watch out my strawpage is really bright
   
-  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) , [strawpage](https://eggisyum.straw.page/) + other [strawpage](https://kakashibukkake.straw.page/)
- 
+  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) , [strawpage](https://eggisyum.straw.page/) 
 
 
 <p align="center"> .ᐟ dni 17- (or just iwc!) and proshippers 
