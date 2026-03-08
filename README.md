@@ -16,12 +16,13 @@
 
   lmao watch out my strawpage is really bright
   
-  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) , [strawpage](https://eggisyum.straw.page/) 
+  𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) 
 
 
-<p align="center"> .ᐟ dni 17- (or just iwc!) and proshippers 
+<p align="center"> .ᐟ dni proshippers  and mmelon
+melon fucking dni fuckign dni fucking dni fucking dni
   
-.ᐟ c + h . I'm very friendly trust , i'm just socially awkward
+.ᐟ c + h 
 
 ↻ .ᐟ If I'm sitting by my lonesome feel free to cuddle behind 
 
