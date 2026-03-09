@@ -7,24 +7,25 @@
 
 ![1000012361](https://github.com/user-attachments/assets/6fcd3af0-d2fe-4e38-bf91-b1052130ad8b) ![](https://komarev.com/ghpvc/?username=eggisyum&color=blue&style=plastic&label=genjutsu'd) ![1000012362](https://github.com/user-attachments/assets/767fa1d1-bbde-4180-8ebc-3bebd4129f55)
 
-  sign my [ata](https://kashi.atabook.org/) for free food ՞. .՞
+
+՞. .՞
  
  
 𐔌![17582008264778189544557597701574](https://github.com/user-attachments/assets/7befe19f-d138-49bc-b0ff-9579752d7822) ◝
 
 ───────────────
 
-  lmao watch out my strawpage is really bright
+
   
   𓂃 [pronouns](https://en.pronouns.page/@eggisyummier) 
 
 
-<p align="center"> .ᐟ dni proshippers  and mmelon
-melon fucking dni fuckign dni fucking dni fucking dni
-  
-.ᐟ c + h 
+<p align="center"> .ᐟ anti censorship, anti harrassment ( i will block incest, pedo, zoo + more . i block specifc media 4 comfort )
 
-↻ .ᐟ If I'm sitting by my lonesome feel free to cuddle behind 
+  
+.ᐟ  dry/blunt replies , i do not bite i am not a dickhead
+
+↻ .ᐟ 
 
 ───────────────
 
